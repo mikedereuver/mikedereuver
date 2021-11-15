@@ -1,4 +1,4 @@
-![alt text](https://www.shutterstock.com/nl/image-photo/jesus-holding-pc-320603567)
+![alt text](https://image.shutterstock.com/image-photo/jesus-holding-pc-600w-320603567.jpg)
 
 
 
