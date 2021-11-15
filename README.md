@@ -1,4 +1,4 @@
-![alt text](https://www.google.nl/url?sa=i&url=https%3A%2F%2Fwww.shutterstock.com%2Fsearch%2Fcomputer%2Bgod&psig=AOvVaw2KPuMG__TG6RdPd-LuZh9B&ust=1637062942332000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCOi1ucmlmvQCFQAAAAAdAAAAABAD)
+![alt text](https://www.shutterstock.com/nl/image-photo/jesus-holding-pc-320603567)
 
 
 
